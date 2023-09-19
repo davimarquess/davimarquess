@@ -12,4 +12,4 @@ davialjarilla@gmail.com
 
 ig: @davimrques
 
-![]([https://tenor.com/pt-BR/view/thumbs-up-well-done-good-job-well-said-accurate-gif-20365141](https://tenor.com/pt-BR/view/the-rock-the-rock-sus-the-rock-meme-tthe-rock-sus-meme-dwayne-johnson-gif-23805584)https://tenor.com/pt-BR/view/the-rock-the-rock-sus-the-rock-meme-tthe-rock-sus-meme-dwayne-johnson-gif-23805584)
+![descrição do GIF]([https://tenor.com/pt-BR/view/the-rock-the-rock-sus-the-rock-meme-tthe-rock-sus-meme-dwayne-johnson-gif-23805584]
