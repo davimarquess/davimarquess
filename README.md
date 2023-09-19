@@ -12,4 +12,4 @@ davialjarilla@gmail.com
 
 ig: @davimrques
 
-![homem fazendo beleza](https://tenor.com/pt-BR/view/thumbs-up-well-done-good-job-well-said-accurate-gif-20365141)
+![](https://tenor.com/pt-BR/view/thumbs-up-well-done-good-job-well-said-accurate-gif-20365141)
