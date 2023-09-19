@@ -12,4 +12,4 @@ davialjarilla@gmail.com
 
 ig: @davimrques
 
-![Homem dando jóia](link GIF do Tenor)
+!(https://tenor.com/pt-BR/view/thumbs-up-well-done-good-job-well-said-accurate-gif-20365141)
