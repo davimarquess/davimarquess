@@ -12,4 +12,4 @@ davialjarilla@gmail.com
 
 ig: @davimrques
 
-![https://tenor.com/pt-BR/view/the-rock-the-rock-sus-the-rock-meme-tthe-rock-sus-meme-dwayne-johnson-gif-23805584]
+![_](https://tenor.com/pt-BR/view/the-rock-the-rock-sus-the-rock-meme-tthe-rock-sus-meme-dwayne-johnson-gif-23805584)
